@@ -1,3 +1,3 @@
 # HR Analysis
 
-Explain Project: https://lannhine.wixsite.com/portfolioda/copy-of-project-page
+Explain Project: https://bit.ly/HR_Analysis_NhiTran
